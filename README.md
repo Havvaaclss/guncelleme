@@ -1,2 +1,8 @@
 # guncelleme
 guncelledik
+naber
+xczzczxcxz
+
+
+
+
